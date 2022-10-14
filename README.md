@@ -1,0 +1,1 @@
+How to use: [How To Block Gravity Forms SPAM from Ever Getting Submitted](https://tourkick.com/advice-tips-howto/block-gravity-forms-spam-gravity-perks-disallowed-keywords/?utm_source=github&utm_medium=direct)
